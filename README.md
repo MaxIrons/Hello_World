@@ -1,2 +1,2 @@
 # Hello_World
-Learning how to do things because I'm dumb
+Edits, i get it, for the most part
